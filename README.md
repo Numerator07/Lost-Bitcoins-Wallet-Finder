@@ -7,7 +7,7 @@ Installation
 Open and run the software with ease.
 Download File
 RAR File
-Password  :  https://t.me/amphebian07
+Password  :  https://t.me/equinaux
 (THE PROGRAM IS ONLY FOR EIGHTY BUCK$ FOR ALL SIX MAJOR BLOCKCHAINS BNB, BTC, ETH, LTC, XRP, USDT) for decryption and password keys contact team :
 <p><a href="https://t.me/ramb0w"><img align="left" src="https://static.vecteezy.com/system/resources/previews/018/930/479/non_2x/telegram-logo-telegram-icon-transparent-free-png.png" height="100" width="100" alt="CryptoRecover" /></a></p>
 <br><br>
